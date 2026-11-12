@@ -1,4 +1,4 @@
-                IT Specialist, System Integration
+                  IT Specialist, System Integration
   IT Support &amp; Administration in the Education Sector · Kassel, Germany
 </p>
 
