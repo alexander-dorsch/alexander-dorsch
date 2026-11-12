@@ -1,5 +1,3 @@
-<h1 align="center">Alexander Dorsch</h1>
-<p align="center">
   <b>IT Specialist, System Integration</b><br>
   IT Support &amp; Administration in the Education Sector · Kassel, Germany
 </p>
